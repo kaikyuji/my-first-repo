@@ -1,1 +1,1 @@
-corrigi tudo ass: kaiky
+quebrei de novo3	
